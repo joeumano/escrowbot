@@ -4,6 +4,9 @@
 
 # 🤖 EZKROW AUTOMATED TELEGRAM ESCROW BOT : @EZKROWBOT on telegram
 
+# FOR QUESTIONS AND ANSWER ABOUT EZKROWBOT, HIT ME UP VIA THE TELEGRAM HANDLE BELOW.
+
+[EZKROWBOT OWNER](https://t.me/mjweb3)
 
 🦋 [Twitter](https://x.com/ezkrowbot)
 
@@ -17,6 +20,8 @@
 📢 [Telegram Group](https://t.me/ezkrow_group)
 
 📱 [WhatsApp Channel](https://whatsapp.com/channel/0029Va5msfVCRs1jEwGf7Z3m)
+
+
 
 <ins>Discover EZKROW: Your Trusted Telegram Escrow Bot!</ins>
 
@@ -32,6 +37,20 @@
 ### - Naira and Crypto supported
 ### - Say goodbye to fraudulent transactions.
 ### - EZKROW ensures fair deals every time.
+
+
+# HAVE US SETUP EZKROWBOT FOR YOU UNDER YOUR OWN BRAND NAME AND MAKE MONEY OFFERING AUTOMATED ESCROW SERVICES.
+
+[BUY EZKROWBOT LICENSE](https://sales.ezkrow.com/products/ezkrow-fully-automated-telegram-escrow-botmake-money-offering-escrow-service-with-ezkrow-41894)
+
+
+# FOR QUESTIONS AND ANSWER ABOUT EZKROWBOT, HIT ME UP VIA THE TELEGRAM HANDLE BELOW.
+
+[EZKROWBOT OWNER](https://t.me/mjweb3)
+
+
+
+
 
 Join the revolution in secure online transactions. Trust EZKROW for peace of mind. Explore the future of trust and security today!
 
