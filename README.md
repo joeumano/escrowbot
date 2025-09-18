@@ -8,10 +8,6 @@
 
 [EZKROWBOT OWNER](https://t.me/mjweb3)
 
-🦋 [Twitter](https://x.com/ezkrowbot)
-
-[Facebook](https://facebook.com/ezkrow)
-
 [Demo Video](https://dai.ly/k1puUplMMKRyOPzAZSK)
 
 
@@ -19,7 +15,6 @@
 
 📢 [Telegram Group](https://t.me/ezkrow_group)
 
-📱 [WhatsApp Channel](https://whatsapp.com/channel/0029Va5msfVCRs1jEwGf7Z3m)
 
 
 
